@@ -30,7 +30,7 @@ With almost 4 years of professional experience, I have had the opportunity to wo
 3)	Come up with a data solution.
 4)	Convert it into a business answer. 
 5)	Communication with relevant stakeholders.
-6)	
+
 During all projects had the opportunity to work and gain experience on tools & tech like SQL, Python, Tableau, Power BI. Also, collaborated with cross functional teams & navigated via agile methodologies.
 
 ACHIEVEMENTS : 
