@@ -9,7 +9,7 @@ Interested in roles like:
 4)Business intelligence analyst. 
 
 Background:
-I come from Pune, a vibrant city in western India, is known for its rich history, cultural diversity and as a burgeoning IT hub. Growing up in [Hometown], I developed a strong sense of cultural diversity, heritage , a vibrant inclusive community and a city with an appetite for being the hub for business, advancement & technology.
+I come from Pune, a vibrant city in western India, is known for its rich history, cultural diversity and as a burgeoning IT hub. Growing up in Pune, I developed a strong sense of cultural diversity, heritage , a vibrant inclusive community and a city with an appetite for being the hub for business, advancement & technology.
 
 Interests & Hobbies:
 One of my greatest passions is Soccer. I Played soccer in India at the National level and was captain of the State team. I find joy and fulfillment in playing sports in general and apart from Soccer I also like playing cricket & badminton. I also enjoy watching movies, travelling & recently cooking.
